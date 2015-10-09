@@ -13,6 +13,7 @@ My email is _leonardod8117@hstat.org_
 5. Lunch
 6. English 7
 7. Software Engineering
+
 ##### My Hobbies
 * Play video games
 * Watch Youtube videos
